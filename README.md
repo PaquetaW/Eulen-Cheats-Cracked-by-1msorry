@@ -1,6 +1,6 @@
 # Eulen-Cheats-FiveM-Lua-Executor-Cracked-by-1msorry
 
-- **Any Problem? Check Our Discord:** https://discord.com/invite/c2pCQCEP
+- **Any Problem? Check Our Discord:** https://discord.com/invite/t7Ve52Hm94
 
 ## 🔐 || PASS: 1msorry
 
